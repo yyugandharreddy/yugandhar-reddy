@@ -1,2 +1,2 @@
-# yugandhar-Reddy
+# Yugandhar-Reddy
 new repository
